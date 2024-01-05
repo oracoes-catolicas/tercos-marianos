@@ -1,6 +1,6 @@
 # Aprenda como rezar o Santo Terço Mariano
 
-## MINISTÉRIOS GOZOSOS
+## [MISTÉRIOS GOZOSOS](./misterios-gozosos.md)
 SEGUNDA-FEIRA E SÁBADO
 - Anunciação do Anjo Gabriel a Virgem Maria;
 - Visita de Nossa Senhora à sua prima Isabel;
@@ -8,7 +8,7 @@ SEGUNDA-FEIRA E SÁBADO
 - Apresentação do Menino Jesus no Templo e Purificação da Virgem Maria;
 - Perda e encontro do Menino Jesus no templo entre os doutores da Lei.
 
-## [MINISTÉRIOS DOLOROSOS](./misterios-dolorosos.md)
+## [MISTÉRIOS DOLOROSOS](./misterios-dolorosos.md)
 TERÇA E SEXTA-FEIRA
 - Agonia Mortal de Jesus no Horto das Oliveiras;
 - Flagelação de Jesus;
@@ -16,7 +16,7 @@ TERÇA E SEXTA-FEIRA
 - Jesus carregando uma Cruz (Subida dolorosa ao Calvário);
 - A Crucificação e Morte de Jesus.
 
-## MINISTÉRIOS GLORIOSOS
+## [MISTÉRIOS GLORIOSOS](./misterios-gloriosos.md)
 QUARTA-FEIRA E DOMINGO
 - A Ressurreição de Jesus;
 - Ascensão de Jesus aos Céus;
@@ -24,7 +24,7 @@ QUARTA-FEIRA E DOMINGO
 - Assunção de Nossa Senhora aos Céus;
 - Coroação de Nossa Senhora, como Rainha do Céu e da terra.
 
-## [MINISTÉRIOS LUMINOSOS](./misterios-luminosos.md)
+## [MISTÉRIOS LUMINOSOS](./misterios-luminosos.md)
 QUINTA FEIRA
 - Batismo de Jesus no rio Jordão;
 - Primeiro Milagre de Jesus nas Bodas de Caná;

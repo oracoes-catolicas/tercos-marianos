@@ -1,5 +1,5 @@
-# MISTÉRIOS LUMINOSOS
-QUINTA FEIRA
+# MISTÉRIOS GOZOSOS
+SEGUNDA-FEIRA E SÁBADO
 
 ### Sinal da Cruz
 Pelo sinal da Santa Cruz, livrai-nos, Deus, Nosso Senhor, dos nossos inimigos.
@@ -28,14 +28,14 @@ Glória ao Pai, e ao Filho e ao Espírito Santo. Como era no princípio, agora e
 Amém.
 
 # Primeiro Mistério Doloroso
-O Batismo de Jesus no Rio Jordão.
+A Anunciação do Anjo à Nossa Senhora.
 
-Mt 3,16-17
-Depois de ser batizado, Jesus saiu logo da água e o céu se abriu. E ele viu o Espírito de Deus descer, como uma pomba, e vir sobre ele. E do céu veio uma voz que dizia: “Este é meu filho amado; nele está o meu agrado”.
+Lc 1, 26-27
+Naquele tempo, o anjo Gabriel foi enviado por Deus a uma cidade da Galileia, chamada Nazaré, a uma virgem, prometida em casamento a um homem chamado José. Ele era descendente de Davi e o nome da virgem era Maria.
 
-Senhor, honramos o vosso batismo por João. Vos pedimos e à Mãe Santíssima, a fidelidade às promessas do nosso batismo.
+Senhor, honramos a Vossa Encarnação no seio de Maria. Vos pedimos e à Mãe Santíssima, humildade e espírito de oração.
 
-A vida pública de Jesus tem início com seu Batismo por João no rio Jordão. João Batista proclamava «um batismo de arrependimento para a remissão dos pecados» (CIC, 535)
+A Anunciação a Maria inaugura a «plenitude dos tempos» (Gl 4, 4), isto é, o cumprimento das promessas e das preparações. (CIC, 484)
 ### Pai Nosso
 Pai-Nosso que estais nos céus, santificado seja vosso nome, venha a nós o vosso reino, seja feita a vossa vontade assim na terra como no céu. O pão nosso de cada dia nos dai hoje, perdoai-nos as nossas ofensas assim como nós perdoamos a quem nos tem ofendido, e não nos deixeis cair em tentação, mas livrai-nos do mal.
 Amém.
@@ -51,14 +51,14 @@ Amém.
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
 # Segundo Mistério Doloroso
-A Revelação de Jesus nas Bodas de Caná.
+A Visitação de Nossa Senhora à Santa Isabel.
 
-Jo 2, 1-5
-No terceiro dia, houve um casamento em Caná da Galileia, e a mãe de Jesus estava lá. Também Jesus e seus discípulos foram convidados para o casamento. Faltando o vinho, a mãe de Jesus lhe disse: “Eles não têm vinho!” Jesus lhe respondeu: “Mulher, para que me dizes isso? A minha hora ainda não chegou”. Sua mãe disse aos que estavam servindo: “Fazei tudo o que ele vos disser!”
+Lc 1, 39-42
+Naqueles dias, Maria partiu para a região montanhosa, dirigindo-se, apressadamente, a uma cidade da Judeia. Entrou na casa de Zacarias e cumprimentou Isabel. Quando Isabel ouviu a saudação de Maria, a criança pulou no seu ventre e Isabel ficou cheia do Espírito Santo. Com um grande grito, exclamou: “Bendita és tu entre as mulheres e bendito é o fruto do teu ventre!”
 
-Senhor, honramos o vosso milagre nas bodas de Caná, a pedido da Mãe Santíssima. Vos pedimos a confiança na oração de Maria e fé em Vosso poder Divino.
+Senhor, honramos a visitação de Vossa Mãe à prima Isabel. Vos pedimos e à Mãe Santíssima, a caridade para com o próximo.
 
-No limiar de sua vida pública, Jesus opera seu primeiro sinal – a pedido da sua Mãe – por ocasião de uma festa de casamento. A Igreja atribui grande importância à presença de Jesus nas núpcias de Caná. Vê nela a confirmação de que o casamento é uma realidade boa e o anúncio de que, daí em diante, será ele um sinal eficaz da presença de Cristo. (CIC, 1613)
+A «visitação» de Maria a Isabel tornou-se, assim, «visita de Deus ao seu povo» (CIC, 717)
 ### Pai Nosso
 Pai-Nosso que estais nos céus, santificado seja vosso nome, venha a nós o vosso reino, seja feita a vossa vontade assim na terra como no céu. O pão nosso de cada dia nos dai hoje, perdoai-nos as nossas ofensas assim como nós perdoamos a quem nos tem ofendido, e não nos deixeis cair em tentação, mas livrai-nos do mal.
 Amém.
@@ -76,15 +76,14 @@ Amém.
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
 # Terceiro Mistério Doloroso
-O Anúncio do Reino de Deus: um convite à conversão.
+O nascimento de Jesus no presépio de Belém.
 
-Mc 1, 15
-“Completou-se o tempo e o reino de Deus está próximo. Convertei-vos e crede na Boa Nova”
+Lc 2, 1-7
+Aconteceu que naqueles dias, César Augusto publicou um decreto, ordenando o recenseamento de toda a terra. Este primeiro recenseamento foi feito quando Quirino era governador da Síria. Todos iam registrar-se cada um na sua cidade natal. Por ser da família e descendência de Davi, José subiu da cidade de Nazaré, na Galileia, até a cidade de Davi, chamada Belém, na Judeia, para registrar-se com Maria, sua esposa, que estava grávida. Enquanto estavam em Belém, completaram-se os dias para o parto, e Maria deu à luz o seu filho primogênito. Ela o enfaixou e o colocou na manjedoura, pois não havia lugar para eles na hospedaria.
 
-Senhor, honramos o Vosso anúncio do Reino de Deus. Vos pedimos e à Mãe Santíssima, que todos se convertam e formem o povo de Deus, de que Vós sois o Bom Pastor.
+Senhor, honramos o Vosso nascimento. Vos pedimos e à Mãe Santíssima, o desapego dos bens terrenos e o amor à pobreza.
 
-“Todos os homens são chamados a entrar no Reino. Anunciado primeiro aos filhos de Israel, este Reino messiânico está destinado a acolher os homens de todas as nações” (CIC, 543)
-
+«Jesus nasceu na humildade de um estábulo, em uma família pobre. As primeiras testemunhas do evento são simples pastores. É nesta pobreza que se manifesta a glória do Céu» (CIC, 525)
 ### Pai Nosso
 Pai-Nosso que estais nos céus, santificado seja vosso nome, venha a nós o vosso reino, seja feita a vossa vontade assim na terra como no céu. O pão nosso de cada dia nos dai hoje, perdoai-nos as nossas ofensas assim como nós perdoamos a quem nos tem ofendido, e não nos deixeis cair em tentação, mas livrai-nos do mal.
 Amém.
@@ -103,14 +102,14 @@ Amém.
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
 # Quarto Mistério Doloroso
-A Transfiguração de Jesus no Monte Tabor.
+A Apresentação do Menino Jesus no Templo.
 
-Mt 17, 1-2
-Seis dias depois, Jesus levou consigo Pedro, Tiago e João, seu irmão, e os fez subir a um lugar retirado, numa alta montanha. E foi transfigurado diante deles: seu rosto brilhou como o sol e suas roupas ficaram brancas como a luz.
+Lc 2, 21-24
+No oitavo dia, quando o menino devia ser circuncidado, deram-lhe o nome de Jesus, como fora chamado pelo anjo antes de ser concebido no ventre da mãe. E quando se completaram os dias para a purificação, segundo a lei de Moisés, levaram o menino a Jerusalém para apresentá-lo ao Senhor, conforme está escrito na Lei do Senhor: “Todo primogênito do sexo masculino deve ser consagrado ao Senhor.” Para tanto, deviam oferecer em sacrifício um par de rolas ou dois pombinhos, como está escrito na Lei do Senhor.
 
-Senhor, honramos a Vossa transfiguração no Monte Tabor. Vos pedimos e à Mãe Santíssima, que aceitemos como Vós os sofrimentos e as cruzes, para glorificarmos convosco.
+Senhor, honramos a Vossa apresentação no Templo. Vos pedimos e à Mãe Santíssima, que cada um de nós seja consagrado ao Pai Eterno.
 
-Por um instante, Jesus mostra a sua glória divina, confirmando assim a confissão de Pedro. Mostra também que, para «entrar em sua glória» (Lc 24, 26), tem de passar pela Cruz em Jerusalém. (CIC, 555)
+«A circuncisão de Jesus, no oitavo dia depois do seu nascimento, é sinal da sua inserção na descendência de Abraão, no povo da Aliança, da sua submissão à Lei» (CIC, 527)
 ### Pai Nosso
 Pai-Nosso que estais nos céus, santificado seja vosso nome, venha a nós o vosso reino, seja feita a vossa vontade assim na terra como no céu. O pão nosso de cada dia nos dai hoje, perdoai-nos as nossas ofensas assim como nós perdoamos a quem nos tem ofendido, e não nos deixeis cair em tentação, mas livrai-nos do mal.
 Amém.
@@ -127,15 +126,14 @@ Amém.
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
 # Quinto Mistério Doloroso
-A Última Ceia de Jesus com os Apóstolos e a Instituição da Eucaristia.
+O Encontro do Menino Jesus no Templo, entre os Doutores.
 
-Mt 26, 26
-Enquanto estavam comendo, Jesus tomou o pão e pronunciou a benção, partiu-o, deu-o aos discípulos e disse: “Tomai, comei, isto é o meu corpo”.
+Lc 2, 41-47
+Os pais de Jesus iam todos os anos a Jerusalém, para a festa da Páscoa. Quando ele completou doze anos, subiram para a festa, como de costume. Passados os dias da Páscoa, começaram a viagem de volta, mas o menino Jesus ficou em Jerusalém, sem que seus pais o notassem. Pensando que ele estivesse na caravana, caminharam um dia inteiro. Depois começaram a procurá-lo entre os parentes e conhecidos. Não o tendo encontrado, voltaram para Jerusalém à sua procura. Três dias depois, o encontraram no Templo. Estava sentado no meio dos mestres, escutando e fazendo perguntas. Todos os que ouviam o menino estavam maravilhados com sua inteligência e suas respostas.
 
-Senhor, Vos honramos pela Eucaristia. Vos pedimos e à Mãe Santíssima, um imenso amor à Missa e a Vossa presença no Sacrário.
+Senhor, honramos Vossa perda e o reencontro por Maria e José. Vos pedimos e à Mãe Santíssima, o amor à casa e às coisas do Pai.
 
-Ao celebrar a última ceia com os seus Apóstolos, durante a refeição pascal, Jesus deu seu sentido definitivo à Páscoa judaica. Com efeito, a passagem de Jesus a seu Pai, por sua morte e sua ressurreição, a Páscoa nova, é antecipada na ceia e celebrada na Eucaristia, que realiza a Páscoa judaica e antecipa a Páscoa final da Igreja na glória do Reino. (CIC, 1.340)
-
+«O reencontro de Jesus no templo é o único acontecimento que rompe o silêncio dos Evangelhos sobre os anos ocultos de Jesus. Nele, Jesus deixa entrever o mistério de sua consagração total a uma missão decorrente de sua filiação divina: «Não sabíeis que Eu tenho de estar naquilo que é de meu Pai?». (CIC, 534)
 ### Pai Nosso
 Pai-Nosso que estais nos céus, santificado seja vosso nome, venha a nós o vosso reino, seja feita a vossa vontade assim na terra como no céu. O pão nosso de cada dia nos dai hoje, perdoai-nos as nossas ofensas assim como nós perdoamos a quem nos tem ofendido, e não nos deixeis cair em tentação, mas livrai-nos do mal.
 Amém.

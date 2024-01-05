@@ -1,5 +1,5 @@
-# MISTÉRIOS LUMINOSOS
-QUINTA FEIRA
+# MISTÉRIOS GLORIOSOS
+Terça e sexta feiras
 
 ### Sinal da Cruz
 Pelo sinal da Santa Cruz, livrai-nos, Deus, Nosso Senhor, dos nossos inimigos.
@@ -28,14 +28,14 @@ Glória ao Pai, e ao Filho e ao Espírito Santo. Como era no princípio, agora e
 Amém.
 
 # Primeiro Mistério Doloroso
-O Batismo de Jesus no Rio Jordão.
+A Ressurreição de Jesus Cristo.
 
-Mt 3,16-17
-Depois de ser batizado, Jesus saiu logo da água e o céu se abriu. E ele viu o Espírito de Deus descer, como uma pomba, e vir sobre ele. E do céu veio uma voz que dizia: “Este é meu filho amado; nele está o meu agrado”.
+Lc 24, 1-6
+No primeiro dia da semana, bem de madrugada, as mulheres foram ao túmulo, levando os perfumes que tinham preparado. Encontraram a pedra do tumulo removida, mas, ao entrarem, não encontraram o corpo do Senhor Jesus e ficaram sem saber o que estava acontecendo. Nisso, dois homens com vestes resplandescentes pararam perto delas. Tomadas de medo, elas olhavam para o chão. Eles, porém disseram-lhes: “Por que procurais entre os mortos aquele que está vivo? Não está aqui. Ressuscitou!”
 
-Senhor, honramos o vosso batismo por João. Vos pedimos e à Mãe Santíssima, a fidelidade às promessas do nosso batismo.
+Senhor, honramos a Vossa ressurreição gloriosa. Vos pedimos e à Mãe Santíssima, que amemos sempre mais a Vós e Vos sirvamos com fervor.
 
-A vida pública de Jesus tem início com seu Batismo por João no rio Jordão. João Batista proclamava «um batismo de arrependimento para a remissão dos pecados» (CIC, 535)
+«Se Cristo não ressuscitou, vazia é a nossa pregação, vazia é também a vossa fé» (1 Cor 15, 14). A ressurreição constitui, antes de mais nada, a confirmação de tudo o que o próprio Cristo fez e ensinou. (CIC, 651)
 ### Pai Nosso
 Pai-Nosso que estais nos céus, santificado seja vosso nome, venha a nós o vosso reino, seja feita a vossa vontade assim na terra como no céu. O pão nosso de cada dia nos dai hoje, perdoai-nos as nossas ofensas assim como nós perdoamos a quem nos tem ofendido, e não nos deixeis cair em tentação, mas livrai-nos do mal.
 Amém.
@@ -51,14 +51,14 @@ Amém.
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
 # Segundo Mistério Doloroso
-A Revelação de Jesus nas Bodas de Caná.
+A Ascensão de Jesus ao Céu.
 
-Jo 2, 1-5
-No terceiro dia, houve um casamento em Caná da Galileia, e a mãe de Jesus estava lá. Também Jesus e seus discípulos foram convidados para o casamento. Faltando o vinho, a mãe de Jesus lhe disse: “Eles não têm vinho!” Jesus lhe respondeu: “Mulher, para que me dizes isso? A minha hora ainda não chegou”. Sua mãe disse aos que estavam servindo: “Fazei tudo o que ele vos disser!”
+Mc 16, 19
+Depois de falar com os discípulos, o Senhor Jesus foi elevado ao céu e sentou-se à direita de Deus.
 
-Senhor, honramos o vosso milagre nas bodas de Caná, a pedido da Mãe Santíssima. Vos pedimos a confiança na oração de Maria e fé em Vosso poder Divino.
+Senhor, honramos a Vossa triunfante ascensão. Vos pedimos e à Mãe Santíssima, um ardente desejo de alcançar o Paraíso.
 
-No limiar de sua vida pública, Jesus opera seu primeiro sinal – a pedido da sua Mãe – por ocasião de uma festa de casamento. A Igreja atribui grande importância à presença de Jesus nas núpcias de Caná. Vê nela a confirmação de que o casamento é uma realidade boa e o anúncio de que, daí em diante, será ele um sinal eficaz da presença de Cristo. (CIC, 1613)
+Esta última etapa permanece intimamente unida à primeira, isto é, à descida do céu realizada na Encarnação. Só Aquele que «saiu do Pai» pode «retornar ao Pai»: Cristo (CIC, 661)
 ### Pai Nosso
 Pai-Nosso que estais nos céus, santificado seja vosso nome, venha a nós o vosso reino, seja feita a vossa vontade assim na terra como no céu. O pão nosso de cada dia nos dai hoje, perdoai-nos as nossas ofensas assim como nós perdoamos a quem nos tem ofendido, e não nos deixeis cair em tentação, mas livrai-nos do mal.
 Amém.
@@ -76,14 +76,14 @@ Amém.
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
 # Terceiro Mistério Doloroso
-O Anúncio do Reino de Deus: um convite à conversão.
+A descida do Espírito Santo sobre Nossa Senhora e os Apóstolos, reunidos no Cenáculo.
 
-Mc 1, 15
-“Completou-se o tempo e o reino de Deus está próximo. Convertei-vos e crede na Boa Nova”
+At 2, 1-4
+Quando chegou o dia de Pentecostes, os discípulos estavam todos reunidos no mesmo lugar. De repente, veio do céu um ruído como de um vento forte, que encheu toda a casa em que se encontravam. Então apareceram línguas como de fogo que se repartiram e pousaram sobre cada um deles. Todos ficaram cheios do Espírito Santo e começaram a falar em outras línguas, conforme o Espírito lhes concedia expressar-se.
 
-Senhor, honramos o Vosso anúncio do Reino de Deus. Vos pedimos e à Mãe Santíssima, que todos se convertam e formem o povo de Deus, de que Vós sois o Bom Pastor.
+Senhor, honramos a descida do Espírito Santo sobre Maria e os apóstolos. Vos pedimos e à Mãe Santíssima, a descida do Espírito Santo em nossas almas.
 
-“Todos os homens são chamados a entrar no Reino. Anunciado primeiro aos filhos de Israel, este Reino messiânico está destinado a acolher os homens de todas as nações” (CIC, 543)
+«Espírito Santo», este é o nome próprio daquele que adoramos e glorificamos com o Pai e o Filho. A Igreja o recebeu do Senhor e o professa no Batismo de seus novos filhos (CIC, 691)
 
 ### Pai Nosso
 Pai-Nosso que estais nos céus, santificado seja vosso nome, venha a nós o vosso reino, seja feita a vossa vontade assim na terra como no céu. O pão nosso de cada dia nos dai hoje, perdoai-nos as nossas ofensas assim como nós perdoamos a quem nos tem ofendido, e não nos deixeis cair em tentação, mas livrai-nos do mal.
@@ -103,14 +103,14 @@ Amém.
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
 # Quarto Mistério Doloroso
-A Transfiguração de Jesus no Monte Tabor.
+A Assunção de Nossa Senhora ao Céu em corpo e alma.
 
-Mt 17, 1-2
-Seis dias depois, Jesus levou consigo Pedro, Tiago e João, seu irmão, e os fez subir a um lugar retirado, numa alta montanha. E foi transfigurado diante deles: seu rosto brilhou como o sol e suas roupas ficaram brancas como a luz.
+Lc 1, 49
+Todas as gerações, de agora em diante, me chamarão feliz, porque o Poderoso fez para mim coisas grandiosas.
 
-Senhor, honramos a Vossa transfiguração no Monte Tabor. Vos pedimos e à Mãe Santíssima, que aceitemos como Vós os sofrimentos e as cruzes, para glorificarmos convosco.
+Senhor, honramos a gloriosa Assunção de Vossa Mãe ao céu. Vos pedimos que concedei-nos a graça do verdadeiro amor e devoção a Maria.
 
-Por um instante, Jesus mostra a sua glória divina, confirmando assim a confissão de Pedro. Mostra também que, para «entrar em sua glória» (Lc 24, 26), tem de passar pela Cruz em Jerusalém. (CIC, 555)
+Depois de encerrar o curso de sua vida terrestre, a Santíssima Virgem Maria foi elevada em corpo e alma à glória do céu, onde já participa da glória da ressurreição de seu Filho, antecipando a ressurreição de todos os membros de Seu Corpo. (CIC, 974)
 ### Pai Nosso
 Pai-Nosso que estais nos céus, santificado seja vosso nome, venha a nós o vosso reino, seja feita a vossa vontade assim na terra como no céu. O pão nosso de cada dia nos dai hoje, perdoai-nos as nossas ofensas assim como nós perdoamos a quem nos tem ofendido, e não nos deixeis cair em tentação, mas livrai-nos do mal.
 Amém.
@@ -127,14 +127,14 @@ Amém.
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
 # Quinto Mistério Doloroso
-A Última Ceia de Jesus com os Apóstolos e a Instituição da Eucaristia.
+A Coroação de Nossa Senhora, como Rainha do Céu e da Terra.
 
-Mt 26, 26
-Enquanto estavam comendo, Jesus tomou o pão e pronunciou a benção, partiu-o, deu-o aos discípulos e disse: “Tomai, comei, isto é o meu corpo”.
+Ap 12, 1
+Então apareceu no céu um grande sinal: uma mulher vestida com o sol, tendo a lua debaixo dos pés e, sobre a cabeça, uma coroa de doze estrelas.
 
-Senhor, Vos honramos pela Eucaristia. Vos pedimos e à Mãe Santíssima, um imenso amor à Missa e a Vossa presença no Sacrário.
+Senhor, honramos a coroação de Maria. Vos pedimos a perseverança na graça e a coroa da glória eterna.
 
-Ao celebrar a última ceia com os seus Apóstolos, durante a refeição pascal, Jesus deu seu sentido definitivo à Páscoa judaica. Com efeito, a passagem de Jesus a seu Pai, por sua morte e sua ressurreição, a Páscoa nova, é antecipada na ceia e celebrada na Eucaristia, que realiza a Páscoa judaica e antecipa a Páscoa final da Igreja na glória do Reino. (CIC, 1.340)
+«Finalmente, a Imaculada Virgem, preservada imune de toda a mancha da culpa original, terminado o curso da vida terrestre, foi assunta em corpo e alma à glória celeste. E para que mais plenamente estivesse conforme a seu Filho, Senhor dos senhores e vencedor do pecado e da morte, foi exaltada pelo Senhor como Rainha do universo» (CIC 966)
 
 ### Pai Nosso
 Pai-Nosso que estais nos céus, santificado seja vosso nome, venha a nós o vosso reino, seja feita a vossa vontade assim na terra como no céu. O pão nosso de cada dia nos dai hoje, perdoai-nos as nossas ofensas assim como nós perdoamos a quem nos tem ofendido, e não nos deixeis cair em tentação, mas livrai-nos do mal.

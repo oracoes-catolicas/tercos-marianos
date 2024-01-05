@@ -1,4 +1,4 @@
-# MINISTÉRIOS DOLOROSOS
+# MISTÉRIOS DOLOROSOS
 Terça e sexta feiras
 
 ### Sinal da Cruz
