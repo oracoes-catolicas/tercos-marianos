@@ -19,8 +19,7 @@ Amém.
 Glória ao Pai, e ao Filho e ao Espírito Santo. Como era no princípio, agora e sempre.
 Amém.
 
-# 1ª dezena
- Primeiro Mistério Doloroso
+# Primeiro Mistério Doloroso
 Oração e Agonia de Jesus no Jardim das Oliveiras.
 
 Mt 26, 36-39
@@ -29,21 +28,21 @@ Jesus chegou com eles a uma propriedade chamada Getsêmani e disse aos discípul
 Senhor, Vos honramos pela Vossa agonia mortal. Vos pedimos e à Mãe Santíssima, sincero arrependimento de nossos pecados.
 
 Ora tal combate e tal vitória não são possíveis senão na oração. Foi por sua oração que Jesus venceu o Tentador desde o começo e no último combate de sua agonia (CIC, 2849)##
-# Pai Nosso
+## Pai Nosso
 Pai-Nosso que estais nos céus, santificado seja vosso nome, venha a nós o vosso reino, seja feita a vossa vontade assim na terra como no céu. O pão nosso de cada dia nos dai hoje, perdoai-nos as nossas ofensas assim como nós perdoamos a quem nos tem ofendido, e não nos deixeis cair em tentação, mas livrai-nos do mal.
 Amém.
-10x Ave Maria
+## 10x Ave Maria
 Ave Maria, cheia de graça, o Senhor é convosco, bendita sois vós entre as mulheres, e bendito é o fruto do vosso ventre, Jesus.
 
 Santa Maria, Mãe de Deus, rogai por nós, pecadores, agora e na hora da nossa morte.
 Amém.
- Glória
+## Glória
 Glória ao Pai, e ao Filho e ao Espírito Santo. Como era no princípio, agora e sempre.
 Amém.
- Oração
+## Oração
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
-2ª dezena
- Segundo Mistério Doloroso
+
+# Segundo Mistério Doloroso
 A Flagelação de Nosso Senhor Jesus Cristo.
 
 Jo 19,1-3
@@ -52,21 +51,23 @@ Pilatos então, mandou açoitar Jesus. Os soldados trançaram uma coroa de espin
 Senhor, Vos honramos pela Vossa sangrenta flagelação. Vos pedimos e à Mãe Santíssima, o espírito de penitência e sacrifício, e a mortificação dos sentidos.
 
 Os sofrimentos de Jesus tomaram a sua forma histórica concreta, pelo fato de Ele ter sido «rejeitado pelos anciãos, pelos chefes dos sacerdotes e pelos escribas» (Mc 8, 31), que «O entregarão aos gentios para ser escarnecido, açoitado e crucificado» (Mt 20, 19) (CIC, 572)
- Pai Nosso
+## Pai Nosso
 Pai-Nosso que estais nos céus, santificado seja vosso nome, venha a nós o vosso reino, seja feita a vossa vontade assim na terra como no céu. O pão nosso de cada dia nos dai hoje, perdoai-nos as nossas ofensas assim como nós perdoamos a quem nos tem ofendido, e não nos deixeis cair em tentação, mas livrai-nos do mal.
 Amém.
-10x Ave Maria
+
+## 10x Ave Maria
 Ave Maria, cheia de graça, o Senhor é convosco, bendita sois vós entre as mulheres, e bendito é o fruto do vosso ventre, Jesus.
 
 Santa Maria, Mãe de Deus, rogai por nós, pecadores, agora e na hora da nossa morte.
 Amém.
- Glória
+## Glória
 Glória ao Pai, e ao Filho e ao Espírito Santo. Como era no princípio, agora e sempre.
 Amém.
- Oração
+
+## Oração
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
-3ª dezena
- Terceiro Mistério Doloroso
+
+# Terceiro Mistério Doloroso
 A Coroação de espinhos.
 
 Mt 27, 27-29
@@ -75,21 +76,25 @@ Em seguida, os soldados do governador levaram Jesus ao pretório e reuniram todo
 Senhor, Vos honramos pela Vossa humilhante coroação. Vos pedimos e à Mãe Santíssima, que renunciemos ao pecado.
 
 É «o amor até ao fim» que confere ao valor de redenção e de reparação, de expiação e de satisfação ao sacrifício de Cristo. Ele nos conheceu a todos e amou na oferenda de sua vida. (CIC, 616)
- Pai Nosso
+
+## Pai Nosso
 Pai-Nosso que estais nos céus, santificado seja vosso nome, venha a nós o vosso reino, seja feita a vossa vontade assim na terra como no céu. O pão nosso de cada dia nos dai hoje, perdoai-nos as nossas ofensas assim como nós perdoamos a quem nos tem ofendido, e não nos deixeis cair em tentação, mas livrai-nos do mal.
 Amém.
-10x Ave Maria
+
+## 10x Ave Maria
 Ave Maria, cheia de graça, o Senhor é convosco, bendita sois vós entre as mulheres, e bendito é o fruto do vosso ventre, Jesus.
 
 Santa Maria, Mãe de Deus, rogai por nós, pecadores, agora e na hora da nossa morte.
 Amém.
- Glória
+
+## Glória
 Glória ao Pai, e ao Filho e ao Espírito Santo. Como era no princípio, agora e sempre.
 Amém.
- Oração
+
+## Oração
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
-4ª dezena
- Quarto Mistério Doloroso
+
+# Quarto Mistério Doloroso
 Jesus a caminho do Calvário e o encontro com Sua Mãe.
 
 Mc 15, 21-22
@@ -98,21 +103,22 @@ Os soldados obrigaram quem lá passava voltando do campo, Simão de Cirene, pai 
 Senhor, honramos o carregamento sofrido da cruz. Vos pedimos e à Mãe Santíssima paciência para carregar as nossas cruzes.
 
 Ao aceitar em sua vontade humana que a vontade do Pai seja feita, aceita a sua morte como redentora, para «carregar em seu próprio corpo os nossos pecados sobre o madeiro da cruz» (CIC, 612)
- Pai Nosso
+## Pai Nosso
 Pai-Nosso que estais nos céus, santificado seja vosso nome, venha a nós o vosso reino, seja feita a vossa vontade assim na terra como no céu. O pão nosso de cada dia nos dai hoje, perdoai-nos as nossas ofensas assim como nós perdoamos a quem nos tem ofendido, e não nos deixeis cair em tentação, mas livrai-nos do mal.
 Amém.
-10x Ave Maria
+## 10x Ave Maria
 Ave Maria, cheia de graça, o Senhor é convosco, bendita sois vós entre as mulheres, e bendito é o fruto do vosso ventre, Jesus.
 
 Santa Maria, Mãe de Deus, rogai por nós, pecadores, agora e na hora da nossa morte.
 Amém.
- Glória
+## Glória
 Glória ao Pai, e ao Filho e ao Espírito Santo. Como era no princípio, agora e sempre.
 Amém.
- Oração
+
+## Oração
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
-5ª dezena
- Quinto Mistério Doloroso
+
+# Quinto Mistério Doloroso
 A Crucificação e morte de Jesus.
 
 Lc 23, 33-34; 44-46
@@ -121,23 +127,29 @@ Quando chegaram ao lugar chamado Calvário, ali crucificaram Jesus e os malfeito
 Senhor, honramos a Vossa morte no Calvário. Vos pedimos e à Mãe Santíssima, a nossa conversão e de todos os pecadores.
 
 «Cristo morreu pelos nossos pecados, segundo as Escrituras» (CIC, 619)
- Pai Nosso
+
+## Pai Nosso
 Pai-Nosso que estais nos céus, santificado seja vosso nome, venha a nós o vosso reino, seja feita a vossa vontade assim na terra como no céu. O pão nosso de cada dia nos dai hoje, perdoai-nos as nossas ofensas assim como nós perdoamos a quem nos tem ofendido, e não nos deixeis cair em tentação, mas livrai-nos do mal.
 Amém.
-10x Ave Maria
+
+## 10x Ave Maria
 Ave Maria, cheia de graça, o Senhor é convosco, bendita sois vós entre as mulheres, e bendito é o fruto do vosso ventre, Jesus.
 
 Santa Maria, Mãe de Deus, rogai por nós, pecadores, agora e na hora da nossa morte.
 Amém.
- Glória
+
+## Glória
 Glória ao Pai, e ao Filho e ao Espírito Santo. Como era no princípio, agora e sempre.
 Amém.
- Oração
+
+## Oração
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
- Agradecimento
+ 
+# Agradecimento
 Infinitas graças vos damos, Soberana Rainha, pelos benefícios que todos os dias recebemos de vossas mãos liberais (divinais/maternais).
 Dignai-vos, agora e para sempre, tomar-nos debaixo de vosso poderoso amparo e para mais vos alegrar (obrigar/agradecer) vos saudamos com uma Salve Rainha:
- Salve Rainha
+
+# Salve Rainha
 Salve, Rainha, Mãe de misericórdia, vida, doçura e esperança nossa, Salve! A vós bradamos, os degredados filhos de Eva, a vós suspiramos, gemendo e chorando neste vale de lágrimas! Eia, pois, Advogada nossa, esses vossos olhos misericordiosos a nós volvei, e depois deste desterro mostrai-nos Jesus, bendito fruto do vosso ventre! Ó clemente, ó piedosa, ó doce sempre Virgem Maria.
 Rogai por nós, Santa Mãe de Deus, para que sejamos dignos das promessas de Cristo.
 Amém.
