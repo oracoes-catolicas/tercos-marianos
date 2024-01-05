@@ -1,4 +1,4 @@
-# Misterio Luminoso
+# MINISTÉRIOS LUMINOSOS
 Quinta-Feira
 
 ### Sinal da Cruz

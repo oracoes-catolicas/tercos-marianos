@@ -1,5 +1,5 @@
-# Misterio Doloroso
-Rezado as terça e sexta
+# MINISTÉRIOS DOLOROSOS
+Terça e sexta feiras
 
 ### Sinal da Cruz
 Pelo sinal da Santa Cruz, livrai-nos, Deus, Nosso Senhor, dos nossos inimigos.
