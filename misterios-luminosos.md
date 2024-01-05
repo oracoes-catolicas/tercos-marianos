@@ -27,7 +27,7 @@ Amém.
 Glória ao Pai, e ao Filho e ao Espírito Santo. Como era no princípio, agora e sempre.
 Amém.
 
-# Primeiro Mistério Doloroso
+# Primeiro Mistério
 O Batismo de Jesus no Rio Jordão.
 
 Mt 3,16-17
@@ -50,7 +50,7 @@ Amém.
 ### Oração
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
-# Segundo Mistério Doloroso
+# Segundo Mistério
 A Revelação de Jesus nas Bodas de Caná.
 
 Jo 2, 1-5
@@ -75,7 +75,7 @@ Amém.
 ### Oração
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
-# Terceiro Mistério Doloroso
+# Terceiro Mistério
 O Anúncio do Reino de Deus: um convite à conversão.
 
 Mc 1, 15
@@ -102,7 +102,7 @@ Amém.
 ### Oração
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
-# Quarto Mistério Doloroso
+# Quarto Mistério
 A Transfiguração de Jesus no Monte Tabor.
 
 Mt 17, 1-2
@@ -126,7 +126,7 @@ Amém.
 ### Oração
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
-# Quinto Mistério Doloroso
+# Quinto Mistério
 A Última Ceia de Jesus com os Apóstolos e a Instituição da Eucaristia.
 
 Mt 26, 26

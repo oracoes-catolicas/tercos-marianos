@@ -1,5 +1,5 @@
 # MISTÉRIOS DOLOROSOS
-Terça e sexta feiras
+TERÇA E SEXTA-FEIRA
 
 ### Sinal da Cruz
 Pelo sinal da Santa Cruz, livrai-nos, Deus, Nosso Senhor, dos nossos inimigos.
@@ -27,7 +27,7 @@ Amém.
 Glória ao Pai, e ao Filho e ao Espírito Santo. Como era no princípio, agora e sempre.
 Amém.
 
-# Primeiro Mistério Doloroso
+# Primeiro Mistério
 Oração e Agonia de Jesus no Jardim das Oliveiras.
 
 Mt 26, 36-39
@@ -50,7 +50,7 @@ Amém.
 ### Oração
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
-# Segundo Mistério Doloroso
+# Segundo Mistério
 A Flagelação de Nosso Senhor Jesus Cristo.
 
 Jo 19,1-3
@@ -75,7 +75,7 @@ Amém.
 ### Oração
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
-# Terceiro Mistério Doloroso
+# Terceiro Mistério
 A Coroação de espinhos.
 
 Mt 27, 27-29
@@ -102,7 +102,7 @@ Amém.
 ### Oração
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
-# Quarto Mistério Doloroso
+# Quarto Mistério
 Jesus a caminho do Calvário e o encontro com Sua Mãe.
 
 Mc 15, 21-22
@@ -126,7 +126,7 @@ Amém.
 ### Oração
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
-# Quinto Mistério Doloroso
+# Quinto Mistério
 A Crucificação e morte de Jesus.
 
 Lc 23, 33-34; 44-46

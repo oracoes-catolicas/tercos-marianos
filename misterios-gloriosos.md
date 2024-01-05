@@ -1,5 +1,5 @@
 # MISTÉRIOS GLORIOSOS
-Terça e sexta feiras
+SEGUNDA-FEIRA E SÁBADO
 
 ### Sinal da Cruz
 Pelo sinal da Santa Cruz, livrai-nos, Deus, Nosso Senhor, dos nossos inimigos.
@@ -27,7 +27,7 @@ Amém.
 Glória ao Pai, e ao Filho e ao Espírito Santo. Como era no princípio, agora e sempre.
 Amém.
 
-# Primeiro Mistério Doloroso
+# Primeiro Mistério
 A Ressurreição de Jesus Cristo.
 
 Lc 24, 1-6
@@ -50,7 +50,7 @@ Amém.
 ### Oração
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
-# Segundo Mistério Doloroso
+# Segundo Mistério
 A Ascensão de Jesus ao Céu.
 
 Mc 16, 19
@@ -75,7 +75,7 @@ Amém.
 ### Oração
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
-# Terceiro Mistério Doloroso
+# Terceiro Mistério
 A descida do Espírito Santo sobre Nossa Senhora e os Apóstolos, reunidos no Cenáculo.
 
 At 2, 1-4
@@ -102,7 +102,7 @@ Amém.
 ### Oração
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
-# Quarto Mistério Doloroso
+# Quarto Mistério
 A Assunção de Nossa Senhora ao Céu em corpo e alma.
 
 Lc 1, 49
@@ -126,7 +126,7 @@ Amém.
 ### Oração
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
-# Quinto Mistério Doloroso
+# Quinto Mistério
 A Coroação de Nossa Senhora, como Rainha do Céu e da Terra.
 
 Ap 12, 1

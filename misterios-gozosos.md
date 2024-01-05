@@ -27,7 +27,7 @@ Amém.
 Glória ao Pai, e ao Filho e ao Espírito Santo. Como era no princípio, agora e sempre.
 Amém.
 
-# Primeiro Mistério Doloroso
+# Primeiro Mistério
 A Anunciação do Anjo à Nossa Senhora.
 
 Lc 1, 26-27
@@ -50,7 +50,7 @@ Amém.
 ### Oração
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
-# Segundo Mistério Doloroso
+# Segundo Mistério
 A Visitação de Nossa Senhora à Santa Isabel.
 
 Lc 1, 39-42
@@ -75,7 +75,7 @@ Amém.
 ### Oração
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
-# Terceiro Mistério Doloroso
+# Terceiro Mistério
 O nascimento de Jesus no presépio de Belém.
 
 Lc 2, 1-7
@@ -101,7 +101,7 @@ Amém.
 ### Oração
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
-# Quarto Mistério Doloroso
+# Quarto Mistério
 A Apresentação do Menino Jesus no Templo.
 
 Lc 2, 21-24
@@ -125,7 +125,7 @@ Amém.
 ### Oração
 Ó meu Jesus, perdoai-nos e livrai-nos do fogo do inferno; levai as almas todas para o Céu, principalmente as que mais precisarem.
 
-# Quinto Mistério Doloroso
+# Quinto Mistério
 O Encontro do Menino Jesus no Templo, entre os Doutores.
 
 Lc 2, 41-47
