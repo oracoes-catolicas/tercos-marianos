@@ -4,6 +4,7 @@ TERÇA E SEXTA-FEIRA
 ### Sinal da Cruz
 Pelo sinal da Santa Cruz, livrai-nos, Deus, Nosso Senhor, dos nossos inimigos.
 Em nome do Pai e do Filho e do Espírito Santo. Amém.
+
 ### Invocação ao Espírito Santo
 
 Vinde Espírito Santo, enchei os corações dos vossos fiéis e acendei neles o fogo do Vosso Amor. Enviai o Vosso Espírito e tudo será criado e renovareis a face da terra.
@@ -161,3 +162,6 @@ Dignai-vos, agora e para sempre, tomar-nos debaixo de vosso poderoso amparo e pa
 Salve, Rainha, Mãe de misericórdia, vida, doçura e esperança nossa, Salve! A vós bradamos, os degredados filhos de Eva, a vós suspiramos, gemendo e chorando neste vale de lágrimas! Eia, pois, Advogada nossa, esses vossos olhos misericordiosos a nós volvei, e depois deste desterro mostrai-nos Jesus, bendito fruto do vosso ventre! Ó clemente, ó piedosa, ó doce sempre Virgem Maria.
 Rogai por nós, Santa Mãe de Deus, para que sejamos dignos das promessas de Cristo.
 Amém.
+
+# Anjo da Guarda (Santo Anjo)
+Santo Anjo do Senhor, meu zeloso guardador. Se a ti me confiou a piedade Divina. Sempre me rege, me guarde, me governe, me ilumine. Amém.
